@@ -35,5 +35,4 @@ https://bit.ly/2YCCvC0
 👆👆👆
 ➖➖➖➖➖➖➖➖➖
 
-© 2006 - 2022 Paste2.org.
-Follow paste2.org on Twitter
+
