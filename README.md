@@ -1,0 +1,1 @@
+# XbCore---Testamos-o-novo-servidor-FREE-para-RGH
