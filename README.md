@@ -1,8 +1,8 @@
 # XbCore---Testamos-o-novo-servidor-FREE-para-RGH
 
 
-👉 Arquivos Upados 07/11/2022
-Servidor-XbCore_Rev1.5
+👉 Arquivos Upados 08/01/2023
+Servidor-XbCore_Rev1.7
 ➖➖➖➖➖➖➖➖➖
 📌 - XbCore - Testamos o novo servidor FREE para RGH
 video: https://bit.ly/3fWZvY3
@@ -13,11 +13,11 @@ video: https://bit.ly/3fWZvY3
 MOSTRADOS NO VIDEO ACIMA 
 
 👇👇
-🔗 Link direto : https://bit.ly/3UEJSDZ
+🔗 Link direto : https://bit.ly/3YEUhl0
 
-🔗 Link MEGA:  https://bit.ly/3Tjrsau
+🔗 Link MEGA:  https://bit.ly/3K69F5H
 
-🔗 Link Mediafire : https://bit.ly/3UgeUSQ
+🔗 Link Mediafire : https://bit.ly/3I0E82E
 
 ➖➖➖➖➖➖➖➖➖
 🔔
@@ -36,4 +36,5 @@ https://bit.ly/2YCCvC0
 ➖➖➖➖➖➖➖➖➖
 
 
+2
 1
