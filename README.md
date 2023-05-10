@@ -1,8 +1,10 @@
 # XbCore---Testamos-o-novo-servidor-FREE-para-RGH
 
 
-👉 Arquivos Upados 08/01/2023
-Servidor-XbCore_Rev1.7
+👉 Arquivos Atualizados  10/05/2023
+Servidor Furtivo -XbCore_ RGH
+( Este servidor so funciona se o seu XBOX nao tiver a kv banida ou se voce colocar 
+uma kv nao banida junto aos arquivos do servidor )
 ➖➖➖➖➖➖➖➖➖
 📌 - XbCore - Testamos o novo servidor FREE para RGH
 video: https://bit.ly/3fWZvY3
@@ -13,11 +15,11 @@ video: https://bit.ly/3fWZvY3
 MOSTRADOS NO VIDEO ACIMA 
 
 👇👇
-🔗 Link direto : https://bit.ly/3YEUhl0
+🔗 Link direto : http://q.gs/FVYaE
 
-🔗 Link MEGA:  https://bit.ly/3K69F5H
+🔗 Link MEGA:  http://q.gs/FVYaF
 
-🔗 Link Mediafire : https://bit.ly/3I0E82E
+🔗 Link Mediafire : http://q.gs/FVYaG
 
 ➖➖➖➖➖➖➖➖➖
 🔔
